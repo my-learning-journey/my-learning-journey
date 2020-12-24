@@ -15,4 +15,3 @@ I am trying to learn Computer Science, but it is not easy ^^. Here some info abo
 - 📫 How to reach me: I'm not available for the moment :(
 - 😄 Pronouns: They/them
 - ⚡ Fun fact: I love cocktails
--->
